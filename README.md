@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @cubanowinston
+- 👀 I’m interested in advocating for freedom of expression, human rights, and using technology to create safe spaces for open dialogue in Cuba.
+- 🌱 I’m currently learning about digital tools and strategies to bypass censorship and connect silenced voices with the world.
+- 💞️ I’m looking to collaborate on projects related to free speech, activism, and community-building for human rights in restrictive environments.
+- 📫 How to reach me: You can contact me via cubanowinston@gmail.com.
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: I’m passionate about using code and technology as tools for social change in places where freedom is limited.
